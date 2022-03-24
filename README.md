@@ -1,4 +1,4 @@
-### Hi there 👋 I'm Jesson Pitlo I'm 21 years old, I leave in Badiang, Anda, Bohol 
+### Hi there 👋 I'm Jesson Pitlo I'm 21 years old, I live in Badiang, Anda, Bohol 
 
 <!--
 **jessondpitlo/jessondpitlo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
